@@ -1,4 +1,4 @@
-# Kenshi Yonezu • 81M plays – さよーならまたいつか！- Sayonara
+# 米津玄師 – さよーならまたいつか！- Sayonara
 
 > **歌詞登録ステータス：同期歌詞あり**
 
